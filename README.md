@@ -1,1 +1,1 @@
-# Mohammad Safakhou
+# Writing Shit code is AWesome
