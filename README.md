@@ -1,1 +1,1 @@
-# Writing Shit code is AWesome
+# Writing **** code is AWesome
